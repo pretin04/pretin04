@@ -12,4 +12,4 @@ Minhas principais atividade do Github são:
 ​
 @pedro.h_ofc​​
 
-​![](https://th.bing.com/th/id/OIP.FvFQobLkG8cdXMivZdDzowHaHa?rs=1&pid=ImgDetMain)
+​![](https://e3f49eaa46b57.cdn.sohucs.com/2022/8/25/21/35/MTAwMTM1XzE2NjE0MzQ1Mjk5ODE=.jpg)
